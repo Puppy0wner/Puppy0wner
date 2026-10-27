@@ -1,7 +1,5 @@
 
-<div align="center"> <h1>
-  <span style="color:#FFB6C1;">H</span><span style="color:#ADD8E6;">o</span><span style="color:#FFB6C1;">l</span><span style="color:#ADD8E6;">a</span>
-</h1>
+<div align="center">
 Տᕼᗴ /𝚑𝚎𝚛  ㅤㅤ. ㅤㅤ4ȶꫀꫀ᭢
   <div align="center">
     <div align="center">
