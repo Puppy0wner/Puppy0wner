@@ -24,3 +24,21 @@
 <img src="https://i.pinimg.com/736x/97/d2/fa/97d2fa71ddf058df001d71c118bf90d2.jpg" alt="Mi imagen" width="500">
 
 </div>
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<div align="center">
+si te preguntas quien es mi "puppy", es mi novio.
