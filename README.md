@@ -7,6 +7,7 @@
     <div align="center">
       <div align="center">
 ㅤㅤ𝓮𝓷𝓰 . 𝕖𝕤𝕡     .ℱℛꫀꫀᏓƴ to iⲛτɛɾɑᑕT
+         <div align="center">
                    ㅤ🧁
     𝗜 𝗟𝗢𝗩𝗘 𝗠𝗬 𝗕𝗙 ㅤㅤ♡  ㅤㅤ@ . ᴍᴏꜱʜɪꜰᴏʀᴇᴠᴇʀ > ᴏ < 
             Hablo temas aveces sobre n s .fw , bromas incomodas o de mal gusto, etc.. Si tienes problemas
