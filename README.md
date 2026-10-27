@@ -16,7 +16,9 @@
                                                    <div align="center">
            Si tienes problemas con este tipo de cosas entonces alejate de mi o no 
                                                       <div align="center">
-          interactues conmigo! Debido a que mi humor es uno demasiado elevado. No estare rogandote por quedarte lol
+          interactues conmigo! Debido a que mi humor es uno demasiado elevado. 
+                                                         <div align="center">
+                                                        No estare rogandote por quedarte lol
             
 
         
