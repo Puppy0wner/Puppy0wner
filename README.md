@@ -11,6 +11,6 @@
           <div align="center"> 
             ㅤㅤㅤㅤ🧁
 <div align="center">
-<img src="https://pbs.twimg.com/media/HMDG7WeWAAAMb85?format=jpg&name=large" alt="Mi imagen" width="500">
+<img src="https://i.pinimg.com/736x/97/d2/fa/97d2fa71ddf058df001d71c118bf90d2.jpg" alt="Mi imagen" width="500">
 
 </div>
