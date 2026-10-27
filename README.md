@@ -12,9 +12,11 @@
             <div align="center">
     𝗜 𝗟𝗢𝗩𝗘 𝗠𝗬 𝗕𝗙 ㅤㅤ♡  ㅤㅤ@ . ᴍᴏꜱʜɪꜰᴏʀᴇᴠᴇʀ > ᴏ < 
                                                 <div align="center">
-            Hablo temas aveces sobre n s .fw , bromas incomodas o de mal gusto, etc.. Si tienes problemas
-            con este tipo de cosas entonces alejate de mi o no interactues conmigo! Debido a que mi humor es uno
-            demasiado elevado. No estare rogandote por quedarte lol
+            Hablo temas aveces sobre n s .fw , bromas incomodas o de mal gusto, etc.. 
+                                                   <div align="center">
+           Si tienes problemas con este tipo de cosas entonces alejate de mi o no 
+                                                      <div align="center">
+          interactues conmigo! Debido a que mi humor es uno demasiado elevado. No estare rogandote por quedarte lol
             
 
         
