@@ -52,11 +52,3 @@
 
 
 
-
-
-
-
-
-
-<div align="center">
-si te preguntas quien es mi "puppy", es mi novio.
