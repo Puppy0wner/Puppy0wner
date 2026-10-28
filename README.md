@@ -25,7 +25,7 @@
             
 
   <div align="center">      
-<img src="https://i.pinimg.com/736x/0f/4e/15/0f4e150724376ad5fdd877f9f5ad3fc9.jpg" alt="Mi imagen" width="500">
+<img src="https://i.pinimg.com/736x/2c/bd/43/2cbd4349b9e26c92a7dc8817a29e1757.jpg" alt="Mi imagen" width="500">
 
 </div>
 
