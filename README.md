@@ -27,6 +27,12 @@
 
 </div>
 
+ <div align="center">      
+<img src="https://i.pinimg.com/1200x/b6/34/9d/b6349db578bf83195c978d298b9ed7df.jpg" alt="Mi imagen" width="500">
+
+</div>
+
+
 
 
 <div align="center">      
@@ -35,7 +41,8 @@
 </div>
 
 
-
+<div align="center">
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 
 
