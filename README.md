@@ -16,7 +16,9 @@
                                                    <div align="center">
            If you have problems with this kind of thing, stay away from me or 
                                                       <div align="center">
-          don't interact with me, because I won't beg you to stay, I only beg my boyfriend.
+          don't interact with me, because I won't beg you to stay, 
+                                                        <div align="center">
+                                                        I only beg my boyfriend.
                                                       
                                                   
                                                       
