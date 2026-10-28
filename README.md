@@ -23,7 +23,7 @@
             
 
   <div align="center">      
-<img src="https://i.pinimg.com/736x/97/d2/fa/97d2fa71ddf058df001d71c118bf90d2.jpg" alt="Mi imagen" width="500">
+<img src="https://i.pinimg.com/736x/0f/4e/15/0f4e150724376ad5fdd877f9f5ad3fc9.jpg" alt="Mi imagen" width="500">
 
 </div>
 
