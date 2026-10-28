@@ -12,13 +12,13 @@
             <div align="center">
     𝗜 𝗟𝗢𝗩𝗘 𝗠𝗬 𝗕𝗙 ㅤㅤ♡  ㅤㅤ@ . ᴍᴏꜱʜɪꜰᴏʀᴇᴠᴇʀ > ᴏ < 
                                                 <div align="center">
-            Hablo temas aveces sobre n s .fw , bromas incomodas o de mal gusto, etc.. 
+            Sometimes i talk about n s .fw , awkward jokes, etc.. 
                                                    <div align="center">
-           Si tienes problemas con este tipo de cosas entonces alejate de mi o no 
+           If you have problems with this kind of thing, stay away from me or 
                                                       <div align="center">
-          interactues conmigo! Debido a que mi humor es uno demasiado elevado. 
-                                                      <div align="center">
-                                                      No pienso rogarte, solo le ruego a mi novio.
+          don't interact with me, because I won't beg you to stay, I only beg my boyfriend.
+                                                      
+                                                  
                                                       
             
 
