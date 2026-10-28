@@ -33,7 +33,7 @@
 
 
 <div align="center">      
-<img src="https://i.pinimg.com/736x/14/9f/1b/149f1b77c1e97d9a57ffc25846a1726b.jpg" alt="Mi imagen" width="100">
+<img src="https://i.pinimg.com/736x/14/9f/1b/149f1b77c1e97d9a57ffc25846a1726b.jpg" alt="Mi imagen" width="500">
 
 </div>
 
