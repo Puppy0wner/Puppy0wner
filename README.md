@@ -9,8 +9,9 @@
 ㅤㅤ𝓮𝓷𝓰 . 𝕖𝕤𝕡     .ℱℛꫀꫀᏓƴ to iⲛτɛɾɑᑕT
          <div align="center">
                    ㅤ🧁
-            <div align="center">
-    𝗜 𝗟𝗢𝗩𝗘 𝗠𝗬 𝗕𝗙 ㅤㅤ♡  ㅤㅤ@ . ᴍᴏꜱʜɪꜰᴏʀᴇᴠᴇʀ > ᴏ < 
+                     <div align="center">      
+<img src="https://i.pinimg.com/736x/c8/41/b7/c841b7a669f691e7536be67a80c74165.jpg" alt="Mi imagen" width="500">
+         
                                                 <div align="center">
             Sometimes i talk about n s .fw , awkward jokes, etc.. 
                                                    <div align="center">
