@@ -27,10 +27,7 @@
 
 </div>
 
- <div align="center">      
-<img src="https://i.pinimg.com/736x/1a/af/a7/1aafa7734302a8e8cb49125f532c4fce.jpg" alt="Mi imagen" width="500">
 
-</div>
 
 <div align="center">      
 <img src="https://i.pinimg.com/1200x/20/6a/64/206a641fafd22eb264f0f282d44c5586.jpg" alt="Mi imagen" width="100">
