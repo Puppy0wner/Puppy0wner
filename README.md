@@ -9,9 +9,7 @@
 ㅤㅤ𝓮𝓷𝓰 . 𝕖𝕤𝕡     .ℱℛꫀꫀᏓƴ to iⲛτɛɾɑᑕT
          <div align="center">
                    ㅤ🧁
-
-         
-                                                <div align="center">
+                                      <div align="center">
             Sometimes i talk about n s .fw , awkward jokes, etc.. 
                                                    <div align="center">
            If you have problems with this kind of thing, stay away from me or 
