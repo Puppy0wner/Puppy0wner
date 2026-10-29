@@ -37,6 +37,12 @@
 
 </div>
 
+<div align="center">      
+<img src="https://i.pinimg.com/736x/b4/d7/25/b4d7257df3aa839a080a2edbd2b8399d.jpg" alt="Mi imagen" width="100">
+
+</div>
+
+
 
 
 
