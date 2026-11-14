@@ -8,7 +8,6 @@ still in wip . ♡
 
 [ata 𓏵 . ](https://purplepie.atabook.org/)
 
-[x acc .✦ ݁˖ FOR MY PARTNER ](https://x.com/SevenC00l_)
 
 
 
