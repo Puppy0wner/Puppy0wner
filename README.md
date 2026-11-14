@@ -5,6 +5,7 @@ still in wip . ♡
 </div>
 
 [pron. ♡](https://en.pronouns.page/@%F0%93%8F%BD%F0%9D%90%8E%E1%97%AF%E1%91%8E%E2%84%AF%F0%9D%93%87)
+[ata 𓏵 . ](https://purplepie.atabook.org/)
 
 
 
