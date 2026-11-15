@@ -1,9 +1,9 @@
 <div align="center">
 
 <details>
-  <summary>$\color{#8547B0}{\textsf{Haz clic aquí para desplegar}}$</summary>
+  <summary>$\color{#8547B0}{\textsf{click here .}}$</summary>
 
-  $$\color{#8547B0}{\textsf{Todo este texto aparecerá centrado y de un solo color uniforme al abrir la flechita.}}$$
+  $$\color{#8547B0}{\textsf{WIP}}$$
 </details>
 
 </div>
