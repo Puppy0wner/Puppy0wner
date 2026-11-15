@@ -8,6 +8,10 @@ still in wip . ♡
 
 [ata 𓏵 . ](https://purplepie.atabook.org/)
 
+<div align="center">
+  <img src="https://static1.glowtxt.com/data1/2/a/d/2ade5068e6e1bf8096391498500a1e66014cb96bda39a3ee5e6b4b0d3255bfef95601890afd80709da39a3ee5e6b4b0d3255bfef95601890afd807097270a9670c032235ef79d6195850ca3d.gif" alt="Descripción de la imagen" width="500">
+</div>
+
 
 
 
