@@ -1,8 +1,3 @@
-<div align="center">
-  <img src="https://static1.glowtxt.com/data1/d/e/d/ded8bd8d0c12d6b98848b6f7df828a6b05bc0881da39a3ee5e6b4b0d3255bfef95601890afd80709da39a3ee5e6b4b0d3255bfef95601890afd807097b9b727e6fc10207fedc7e439dcd01e3.gif" alt="Descripción de la imagen" width="500">
-</div>
-
-
 still in wip . ♡
 
 <div align="center">
