@@ -9,7 +9,7 @@ still in wip . ♡
 [ata 𓏵 . ](https://purplepie.atabook.org/)
 
 <div align="center">
-  <img src="https://static1.glowtxt.com/data1/2/a/d/2ade5068e6e1bf8096391498500a1e66014cb96bda39a3ee5e6b4b0d3255bfef95601890afd80709da39a3ee5e6b4b0d3255bfef95601890afd807097b9b727e6fc10207fedc7e439dcd01e3.gif" alt="Descripción de la imagen" width="500">
+  <img src="https://i.pinimg.com/originals/2f/c6/60/2fc660f13c71f9ba13c72881b2a3b270.gif" alt="Descripción de la imagen" width="500">
 </div>
 
 
