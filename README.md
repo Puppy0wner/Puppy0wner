@@ -8,6 +8,16 @@
 
 </div>
 
+<div align="center">
+
+<details>
+  <summary>$\color{#E8B631}{\textsf{.✦ ݁˖ Ᏸꌦ꒐ }}$</summary>
+
+  $$\color{#8547B0}{\textsf{♡ . Hey, Jake here! Oh yeah, I have a lot of names, like: Flann, Donn, Donutshere, Srdonn, Flannitzz, Ajke, Jakeqww. Although I'm currently best known as Donn because of my commission art, I prefer the name Jake. Am I like the number one fan of 007n7? I don't know, at least I don't LARP it like other people, haha ​​lol. My emotions can change too quickly because I'm a very sensitive person or I tend to overthink things. Sometimes, umm, sometimes, hehe, I talk about n . s f W topics... (you know what I mean ( •̀ - •́ ) so if you don't want to talk about those things, please tell me. I don't want to make anyone uncomfortable. My jokes can vary depending on how well I know you, so don't ask me why I pay more attention to others than to you. I have some very serious mental health issues, so please be patient with me!!}}$$
+</details>
+
+</div>
+
 
 <div align="center">
   <img src="https://i.pinimg.com/736x/73/4d/93/734d9300382975761381e2809b78e6d8.jpg" alt="Descripción de la imagen" width="500">
