@@ -1,3 +1,16 @@
+<div align="center">
+
+<details>
+  <summary>$\color{#8547B0}{\textsf{Haz clic aquí para desplegar}}$</summary>
+
+  $$\color{#8547B0}{\textsf{Todo este texto aparecerá centrado y de un solo color uniforme al abrir la flechita.}}$$
+</details>
+
+</div>
+
+
+
+
 still in wip . ♡
 
 <div align="center">
