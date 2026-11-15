@@ -32,6 +32,9 @@ $$\color{#8547B0}{\textsf{4tⲉ𝓮𝓷}}$$
 
 [ata 𓏵 . ](https://purplepie.atabook.org/)
 
+[ X . accfmbf  ࣪ ۫𓂅 ♡](https://x.com/SevenC00l_)
+
+
 <div align="center">
   <img src="https://i.pinimg.com/originals/2f/c6/60/2fc660f13c71f9ba13c72881b2a3b270.gif" alt="Descripción de la imagen" width="500">
 </div>
