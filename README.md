@@ -1,9 +1,9 @@
 <div align="center">
 
 <details>
-  <summary>$\color{#8547B0}{\textsf{click here .}}$</summary>
+  <summary>$\color{#E8B631}{\textsf{🄿𝗈𝗇𝗒 𝗍𝗈𝓌𝓃.}}$</summary>
 
-  $$\color{#8547B0}{\textsf{WIP}}$$
+  $$\color{#8547B0}{\textsf{♡ . In Pony Town, I'm mostly AFK or waiting for my partner, but you can still interact with me! PLEASE, BUT PLEASE. DON'T CHEAT ME. I think I'm one of the few people who hate that, but SERIOUSLY, it makes me uncomfortable? I'll only let you if you're someone I know or if you're my partner. NOTE: Cheating is different from interacting or talking to me, so PLEASE TALK TO ME!}}$$
 </details>
 
 </div>
