@@ -30,17 +30,16 @@ $$\color{#8547B0}{\textsf{4tⲉ𝓮𝓷}}$$
 
 [pron. ♡](https://en.pronouns.page/@%F0%93%8F%BD%F0%9D%90%8E%E1%97%AF%E1%91%8E%E2%84%AF%F0%9D%93%87)
 
-[ata 𓏵 . ](https://purplepie.atabook.org/)
 
 <p align="center">
   <a href="https://purplepie.atabook.org/">
-    <img src="https://i.pinimg.com/736x/4b/6a/26/4b6a26262dd1764ceeef32a402aefdb3.jpg" alt="Descripción de la imagen" width="100">
+    <img src="https://i.pinimg.com/736x/4b/6a/26/4b6a26262dd1764ceeef32a402aefdb3.jpg" alt="Descripción de la imagen" width="160">
   </a>
 </p>
 
 <p align="center">
   <a href="https://x.com/SevenC00l_">
-    <img src="https://i.pinimg.com/736x/69/f2/a6/69f2a67866c6972f2feb5eae14d627bf.jpg" alt="Descripción de la imagen" width="100">
+    <img src="https://i.pinimg.com/736x/69/f2/a6/69f2a67866c6972f2feb5eae14d627bf.jpg" alt="Descripción de la imagen" width="160">
   </a>
 </p>
 
