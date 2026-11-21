@@ -34,13 +34,13 @@ $$\color{#8547B0}{\textsf{4tⲉ𝓮𝓷}}$$
 
 <p align="center">
   <a href="https://purplepie.atabook.org/">
-    <img src="https://i.pinimg.com/736x/4b/6a/26/4b6a26262dd1764ceeef32a402aefdb3.jpg" alt="Descripción de la imagen" width="300">
+    <img src="https://i.pinimg.com/736x/4b/6a/26/4b6a26262dd1764ceeef32a402aefdb3.jpg" alt="Descripción de la imagen" width="100">
   </a>
 </p>
 
 <p align="center">
   <a href="https://x.com/SevenC00l_">
-    <img src="https://i.pinimg.com/736x/69/f2/a6/69f2a67866c6972f2feb5eae14d627bf.jpg" alt="Descripción de la imagen" width="300">
+    <img src="https://i.pinimg.com/736x/69/f2/a6/69f2a67866c6972f2feb5eae14d627bf.jpg" alt="Descripción de la imagen" width="100">
   </a>
 </p>
 
