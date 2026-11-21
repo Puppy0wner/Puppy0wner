@@ -32,6 +32,11 @@ $$\color{#8547B0}{\textsf{4tⲉ𝓮𝓷}}$$
 
 [ata 𓏵 . ](https://purplepie.atabook.org/)
 
+<p align="center">
+  <a href="https://purplepie.atabook.org/">
+    <img src="https://i.pinimg.com/736x/4b/6a/26/4b6a26262dd1764ceeef32a402aefdb3.jpg" alt="Descripción de la imagen" width="300">
+  </a>
+</p>
 
 <p align="center">
   <a href="https://x.com/SevenC00l_">
